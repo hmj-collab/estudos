@@ -1,3 +1,5 @@
+O Jejum na Nova Aliança à Luz da Plenitude em Cristo
+
 # 1. Além do Jejum: A Palavra e a Oração como Caminhos para a Intimidade com Deus
 
 ## 1.1. Contextualização da questão do jejum na tradição cristã
